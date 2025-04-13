@@ -1,1 +1,1 @@
-Hentai virus
+Hentai virus made with Golang
