@@ -1,1 +1,2 @@
-[![I created a hentai virus](https://i.ytimg.com/an_webp/6dzh44sxJBk/mqdefault_6s.webp?du=3000&sqp=CIzTg8UG&rs=AOn4CLBJiiEmkkHhFbU_SK89Qh9bNANP7w)](https://www.youtube.com/watch?v=ixkpNBcYaNc)
+# 👾 H virus
+[![Programando uma plataforma de vídeos com IA](https://img.youtube.com/vi/6dzh44sxJBk/maxresdefault.jpg)](https://www.youtube.com/watch?v=6dzh44sxJBk)
